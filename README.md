@@ -4,7 +4,7 @@
 - #### 💞 Freelancer
 - 📫 Connect with me via :-
     > [Email](mailto:ahamdsp@protonmail.com) | 
-    [Instagram](https://www.instagram.com/darshan_ramjiyani/) | 
+    [Instagram](https://www.instagram.com/ramjiyanidarshan/) | 
     [LinkedIn](https://www.linkedin.com/in/darshanramjiyani/) | 
     [Twitter](https://www.twitter.com/AhamDSPatel/) |
     [WhatsApp](https://wa.me/+919909433358)
